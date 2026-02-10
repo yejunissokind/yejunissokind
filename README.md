@@ -11,7 +11,7 @@
 
 ***dedicated mark heathcliff (tmc) kamioshi since 2022, yumeing him since april 25th 2025.*** you do not like him more than i do. i promise you.
 
-i move wherever my friends go ... as of now you can primarily find me at **the hetalia area** (do not be my friend if you only like hetalia bruh i know nothing about it) ! i block a lot of tmc ponies umm you guys make me nervous but you are very cool i promise....
+i move wherever my friends go ... as of now you can primarily find me at **the hetalia area** (do not be my friend if you only like hetalia bruh i know nothing about it) ! i block a lot of tmc ponies umm you guys make me nervous but you are very cool i promise....dni if you like idol x dae-jung i dont like you
 
 obligatory stamp collection ,,, if the stamp is here it's an interest of mine or something i agree with, and im happy to talk about them!
 
